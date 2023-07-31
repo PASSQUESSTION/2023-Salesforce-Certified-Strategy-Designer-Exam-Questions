@@ -1,0 +1,1 @@
+# 2023-Salesforce-Certified-Strategy-Designer-Exam-Questions
